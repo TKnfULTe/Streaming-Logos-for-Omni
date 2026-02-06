@@ -1,0 +1,1 @@
+This is just a repo full of icons and genre pictures I collected from the Omni Discord, to use, please right click and then open the image in a new tab, then copy the URL link and paste back into Omni. This way the link doesn't change.
